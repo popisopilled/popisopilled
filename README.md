@@ -1,4 +1,7 @@
-## Hi there 👋
+<p align="center">
+<img width="512" height="512" alt="image" src="https://file.garden/aiwuFb1dcGybpNqd/Untitled339_20260815113602.png">
+
+${\textsf{\color{#B7FF90}read}}$ ${\textsf{\color{#CBFF90}carrd}}$ ${\textsf{\color{#E5FF90}for}}$ ${\textsf{\color{#FFF290}more}}$ ${\textsf{\color{#FFCF90}info!!}}$
 
 <!--
 **popisopilled/popisopilled** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
