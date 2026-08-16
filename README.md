@@ -1,4 +1,5 @@
-
+<p align="center">
+  <img src="https://blinkies.cafe/b/blinkiesCafe-46.gif">
 <p align="center">
 <img width="512" height="512" alt="image" src="https://file.garden/aiwuFb1dcGybpNqd/Untitled339_20260815113602.png">
 </br>
