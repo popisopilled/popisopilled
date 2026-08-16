@@ -16,6 +16,11 @@ ${\textsf{\color{#B7FF90}normally}}$ ${\textsf{\color{#CBFF90}with}}$ ${\textsf{
     ${\textsf{\color{#B7FF90}normally on}}$ ${\textsf{\color{#CBFF90}one of}}$ ${\textsf{\color{#E5FF90}my}}$ ${\textsf{\color{#FFF290}many}}$ ${\textsf{\color{#FFCF90}coy ponies}}$
   </br>
     ${\textsf{\color{#B7FF90}evident}}$ ${\textsf{\color{#CBFF90}coy bias,}}$ ${\textsf{\color{#E5FF90}send me}}$ ${\textsf{\color{#FFF290}popiso canbon}}$ ${\textsf{\color{#FFCF90}and willcoy please !!!}}$
+  </br>
+  <p align="center">
+    <img width="120" height="120" alt="image" src="https://64.media.tumblr.com/4e338d0e3608394b19c8c4662ba9155f/8c08b1a07cb5f427-9b/s250x400/cecbbb6776e96f2e7571e73613169a8385902419.pnj">
+    <p align="center">
+    <img width="120" height="120" alt="image" src="https://postimg.cc/SnR9WG3T">
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k22wjgvx4e6w42c6ee527h72r4&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31k22wjgvx4e6w42c6ee527h72r4&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=9bd64d&bar_color_cover=false">
