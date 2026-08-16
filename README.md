@@ -19,7 +19,6 @@ ${\textsf{\color{#B7FF90}normally}}$ ${\textsf{\color{#CBFF90}with}}$ ${\textsf{
   </br>
   <p align="center">
     <img width="120" height="120" alt="image" src="https://64.media.tumblr.com/4e338d0e3608394b19c8c4662ba9155f/8c08b1a07cb5f427-9b/s250x400/cecbbb6776e96f2e7571e73613169a8385902419.pnj">
-    <p align="center">
     <img width="120" height="120" alt="image" src="https://postimg.cc/SnR9WG3T">
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k22wjgvx4e6w42c6ee527h72r4&redirect=true">
