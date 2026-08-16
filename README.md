@@ -8,7 +8,7 @@
 </br>
 ${\textsf{\color{#B7FF90}jack}}$ ${\textsf{\color{#CBFF90}18}}$ ${\textsf{\color{#E5FF90}pls}}$ ${\textsf{\color{#FFF290}int}}$ ${\textsf{\color{#FFCF90}dnc}}$
 </br>
-${\textsf{\color{#B7FF90}normally}}$ ${\textsf{\color{#CBFF90}with}}$ ${\textsf{\color{#E5FF90}gay chud}}$ ${\textsf{\color{#FFF290}i hate}}$ ${\textsf{\color{#FFCF90}called coy}}$
+${\textsf{\color{#B7FF90}normally}}$ ${\textsf{\color{#CBFF90}with}}$ ${\textsf{\color{#E5FF90}gay chud}}$ ${\textsf{\color{#FFF290}i.. tch. love..}}$ ${\textsf{\color{#FFCF90}called coy *looks away blushing*}}$
 </br>
   ${\textsf{\color{#B7FF90}OR BOF}}$ ${\textsf{\color{#CBFF90}SQUAD}}$ ${\textsf{\color{#E5FF90}LOTTIE}}$ ${\textsf{\color{#FFF290}HENRY AND MILO}}$ ${\textsf{\color{#FFCF90}I LOVE U GUYS! <3}}$
   </br>
