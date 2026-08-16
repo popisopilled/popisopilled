@@ -2,7 +2,7 @@
 <img width="512" height="512" alt="image" src="https://file.garden/aiwuFb1dcGybpNqd/Untitled339_20260815113602.png">
 </br>
 <p align="center">
-  ${\textsf{\color{#B7FF90}who}}$ ${\textsf{\color{#CBFF90}up}}$ ${\textsf{\color{#E5FF90}po-ing}}$ ${\textsf{\color{#FFF290}they}}$ ${\textsf{\color{#FFCF90}piso}}$
+  ${\textsf{\color{#B7FF90}" THE}}$ ${\textsf{\color{#CBFF90}HOTTEST}}$ ${\textsf{\color{#E5FF90}PEPPER}}$ ${\textsf{\color{#FFF290}IN}}$ ${\textsf{\color{#FFCF90}THE WORLD!! "}}$
 </br>
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31k22wjgvx4e6w42c6ee527h72r4&redirect=true">
